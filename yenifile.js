@@ -1,0 +1,1 @@
+yeni dosyam bu yonetıcım ıstedı
